@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+you can check out other videos at [youtube/wallpapers](https://www.youtube.com/results?search_query=wallpapers)
